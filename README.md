@@ -1,6 +1,6 @@
 # Cheat-WH-For-Fortnite
 ![image](https://github.com/bebrik2323/Cheat-WH-For-Fortnite/assets/173284383/69940d82-b329-467a-9817-b613b9396daf)
-<h1>Download the cheat:</h1>
+<h1>You can download the cheat in release</h1>
 
 
 
